@@ -1,2 +1,4 @@
-uhhh uhhhhh uh
-> fortune | cowsay | lolcat
+> has github
+> doesnt code
+> anime pfp
+yeah its stupid time
