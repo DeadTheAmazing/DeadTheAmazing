@@ -1,4 +1,1 @@
-> has github
-> doesnt code
-> anime pfp
-yeah its stupid time
+`a`>a`a`a a aa    a``` a aaa
